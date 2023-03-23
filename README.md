@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **swapnildyeutkar@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/17Q3TwASFK9JIsDmP3vYVDO5dMhZz4D1J/view?usp=sharing..)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1yRDzU7DvJ1K1dmDZFF9UEhVuoAJnrH59/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
